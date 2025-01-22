@@ -4,6 +4,6 @@
 
 ![](https://i.imgur.com/qsdWcCS.gif) ;; feel free to whisper to me ^^
 
-![](https://i.imgur.com/mIXw3aH.gif) ;; u might find me watching ppl fight in the horse game,, it's v stupid and entertaining 2 me
+![](https://i.imgur.com/mIXw3aH.gif) ;; u might find me watching ppl argue in the horse game,, it's v stupid and entertaining 2 me
 
 ![](https://i.imgur.com/GgnXSyY.gif) ;; anti-harassment, i block/hide freely
