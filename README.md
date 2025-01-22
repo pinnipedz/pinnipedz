@@ -6,4 +6,4 @@
 
 ![](https://i.imgur.com/mIXw3aH.gif) ;; u might find me watching ppl fight in the horse game,, it's v stupid and entertaining 2 me
 
-![](https://i.imgur.com/GgnXSyY.gif) ;; anti-harassment, be nice to people 🍓🍰 i block/hide freely
+![](https://i.imgur.com/GgnXSyY.gif) ;; anti-harassment 🍓🍰 i block/hide freely
