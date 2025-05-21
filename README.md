@@ -6,6 +6,6 @@
 
 ![](https://i.imgur.com/mIXw3aH.gif) ;; me nd my gf are literally fremlyney
 
-![](https://i.imgur.com/GgnXSyY.gif) ;; don't like what you see? block or idk cry about it i love my fremi
+![](https://i.imgur.com/GgnXSyY.gif) ;; don't like what you see? block or idk cry about it. i'm happy living my life 
 
 ![](https://i.imgur.com/zofX8JM.gif) be nice to people!! 
